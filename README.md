@@ -38,5 +38,5 @@ Everything syncs together | still ugly
 
 Coding is \#1 in my heart.
 
-![A waterfall](https://images.app.goo.gl/GsChzeQViyfenAit6)
+![A waterfall](https://en.wikipedia.org/wiki/File:Salto_del_Angel-Canaima-Venezuela08.JPG)
 
